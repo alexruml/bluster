@@ -5,7 +5,8 @@ gwlkbewlnhwel
 gwenlewkgweklhwerml
 gewmlewknhwewe
 lhnwehwejnhkenwn
-jkenwjjgnwj
+jkenwjjgnwjň
+nkmlhwenhwrkhwe
 lihwkhnwehw
 gbhilrjhnel
 gijewoihiwlkl
